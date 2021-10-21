@@ -3,3 +3,4 @@
 - Amatuer in Python, Lua (Rainmeter) and digital artisan crafts
 - Avid Reddit user
 - Interested in Learning Python, CSS, Javascript
+- Addicted to Hentai and Anime... 
